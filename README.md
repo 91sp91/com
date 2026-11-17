@@ -42,7 +42,7 @@ https://91sp91.com
 
 https://telegram.me/jiuyishipinwang
 
-💼 商务合作 | Business Cooperation 商务合作请联系： https://official.1fff8x-t1t1.cyou/?channel=HDXY001
+💼 商务合作 | Business Cooperation 商务合作请联系： https://t.me/cggf91_66
 
 🔁 最新地址获取方式（推荐） How to Get the Latest Address (Recommended) 📧 自动回复邮箱 | Auto-Reply Email 发送任意内容至以下邮箱，即可自动获取最新地址。 Send any message to the email below to receive the latest working address automatically.
 
